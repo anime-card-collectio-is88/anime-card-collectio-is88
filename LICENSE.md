@@ -1,4 +1,4 @@
-
+new evade Script auto-farm teleport offers the most advanced evade Script, with auto-farm and teleport. Perfect for dominating any match.
 
 
 ---
